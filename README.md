@@ -1,5 +1,5 @@
 ## **Обо мне**
-<img src="https://drive.google.com/file/d/1VE5msCRswljR8LKkw_V5T8yDLJdpyqzY/view?usp=sharing"/>
+<img src="https://assets.gq.ru/photos/5fc5eb082c9d693e087fbe69/16:9/w_2560%2Cc_limit/0.jpg"/>
 
 *  Закончила факультет Славянской и Западноевропейской филологии
 * На протяжении последних лет занимаюсь закупкой контента для телеканалов и видеосервисов 

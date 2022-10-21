@@ -1,5 +1,5 @@
 ## **Обо мне**
-<img src="file:///C:/Users/User/Desktop/about_me/me.jpg" />
+<img src="https://drive.google.com/file/d/1VE5msCRswljR8LKkw_V5T8yDLJdpyqzY/view?usp=sharing"/>
 
 *  Закончила факультет Славянской и Западноевропейской филологии
 * На протяжении последних лет занимаюсь закупкой контента для телеканалов и видеосервисов 
